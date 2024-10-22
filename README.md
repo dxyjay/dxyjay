@@ -8,6 +8,6 @@
 
 - 📫 How to reach me micheldibiah@gmail.com
 
-- ⚡ Fun fact: i'm a wannabe trader who works more efficiently with a female lead
+- ⚡ Fun fact: my trading sucks
 
 
